@@ -47,6 +47,6 @@ We may update this Privacy Policy periodically. Significant changes will be comm
 
 For questions or concerns about this Privacy Policy or our mail service, please contact us at:
 
-- **Email:** [bilker1422@gmail.com]
+- **Email:** bilker1422@gmail.com
 
 Thank you for using Maqadear!
